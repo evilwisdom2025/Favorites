@@ -7,3 +7,5 @@
 + 六四博物馆：https://8964museum.com
 + 中国大饥荒档案馆：https://www.yhcw.net
 + [中华人民共和国历史](https://zh.wikipedia.org/zh-cn/%E4%B8%AD%E5%8D%8E%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD%E5%8E%86%E5%8F%B2)
++ 1989bbs:<https://1989bbs.blogspot.com/2009/06/blog-post_10.html>
+
